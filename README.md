@@ -5,7 +5,7 @@ e sejam bem vindos ao meu perfil.
 - pretendo fazer agronomia
 - meu sonho é ter uma fazenda
 
-## você pode emtrar em contato comigo 📧
+## você pode entrar em contato comigo 📧
 
 janainaah12345@gmail.com
 
